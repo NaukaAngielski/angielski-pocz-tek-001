@@ -73,3 +73,57 @@ contrary - przeciwnie
 evidence - dowód, dane 
 ACCUSINGLY - OSKARŻYCIELSKO 
 ACCUSINGLY - OSKARŻYCIELKSO 
+ACCUSINGLY - OSKARŻYCIELSKO 
+ACCUSINGLY - OSKARŻYCIELSKO 
+ACCUSINGLY - OSKARŻYCIELSKO
+ACCUSINGLY - OSKARŻYCIELSKO 
+evidence - dowód, dane
+evidence - dowód, dane
+evidence - dowód, dane
+evidence - dowód, dane 
+evidence - dowod, dane 
+evidence - dowód, dane 
+evidence - dowód, dane 
+evidence - dowód, dane 
+compartment - przedział 
+compartment - przedział 
+compartment - przedział 
+compartment - przedział
+compartment - przedział 
+compartment - przedział 
+compartment - przedział 
+compartment - przedział 
+compartment - przedział 
+compartment - przedział
+compartment - przedział 
+compartment - przedział
+compartment - przedział
+compartment - przedział
+compartment - przedział 
+compartment - przedział
+comaprtment - przedział 
+compartment - przedział 
+COMPARTMENT - przedział
+COMPARTMENT - PRZEDZIAŁ 
+COMPARTMENT - PRZEDZIAŁ 
+COMPARTMENT - PRZEDZIAŁ
+COMPARTMENT - PRZEDZIAŁ
+GIGGLES - CHICHOT 
+GIGGLES - CHOCHOT 
+GIGGLES - CHICHOT 
+GIGGLES - CHICHOT
+GIGGLES - CHICHOT
+GIGGLES - CHICHOT 
+giggles - chichot 
+giggles - chichot
+giggles - chichot
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc
+putting it mildly - delikatnie mówiąc 
