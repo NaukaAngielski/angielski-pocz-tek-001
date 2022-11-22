@@ -42,3 +42,34 @@ EVIDENCE - DOWÓD, DANE
 EVIDENCE - DOWÓD, DANE 
 evidence - dowód, dane 
 evidence - dowód, dane 
+canopy - daszek  *
+thick - gruby
+assume - założyć
+disclosure - ujawnienie 
+helpless - bezradny
+blushoopers - bluźniercy
+decline - spadek 
+hustle - pośpiech
+bustle - gwar
+laden - obciążony, obładowany
+rattle - grzechot, grzochotka
+trolleys - wózki
+accusingly - oskarżycielsko 
+pouring - zsyp, oblanie
+sharp suits - ostre garnitury
+nose-stealing - kradnący nos
+wheezes - świszczący oddech
+slighty - nieznacznie, nieco
+garlic - czosnek
+giggles - chichot
+lame - kiepski 
+certainly - z pewnością
+apart from - oprócz, abstrachując od
+heir - dziedzic
+putting it mildly - delikatnie mówiąc
+confectionery - cukiernia 
+compartment - przedział 
+contrary - przeciwnie 
+evidence - dowód, dane 
+ACCUSINGLY - OSKARŻYCIELSKO 
+ACCUSINGLY - OSKARŻYCIELKSO 
